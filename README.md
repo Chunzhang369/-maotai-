@@ -7,9 +7,9 @@
 ![](https://oscimg.oschina.net/oscnet/up-495d917e980408b9f7bb468967502c0352f.JPEG)
 
 ## 扫码进群技术交流
-- 交流微信(备注茅台)：`myvpnbook`
+- 交流微信(备注茅台)：`myfreebook`
 
-![](https://oscimg.oschina.net/oscnet/up-f26de05a3336e2654ee466f93ab9c65a551.JPEG)
+![](https://oscimg.oschina.net/oscnet/up-c7ae7c08a1c6ec18d523f2277178c1b40b3.JPEG)
 
 
 ## 优化内容
